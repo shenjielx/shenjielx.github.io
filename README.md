@@ -1,6 +1,4 @@
 # Jay Shen
-My Pages.
-
 
 
 2019读书计划：
